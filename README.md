@@ -18,7 +18,7 @@ For donors, the act of giving is often deeply fulfilling. Many individuals and o
 [In conclusion, donating is a powerful tool for change. It not only benefits those in need but also fosters a sense of connection and responsibility among individuals and within communities. By giving back, we contribute to creating a more equitable and caring world.](https://www.cpmrevenuegate.com/zf1320xdzp?key=6db722a5c6d89086fb0b29e98e914d90')
 
 - [Donations Click Please :](https://www.cpmrevenuegate.com/wnv462pd?key=69bc5d09352c01da00ceb955b3197466')
-- - [Donations Click Please :](https://www.cpmrevenuegate.com/w8u5kh176c?key=1e8194a152d496ea8678bf47f6f303f0')
-  - - [Donations Click Please :](https://www.cpmrevenuegate.com/geqz1h5i?key=fb76cd6a483ebea414e167e341da2c1f')
-    - - [Donations Click Please :](https://www.cpmrevenuegate.com/zf1320xdzp?key=6db722a5c6d89086fb0b29e98e914d90')
-      - - [Donations Click Please :](https://www.cpmrevenuegate.com/panm4m5wsh?key=66694366e006089ac768292f36436d42')
+- [Donations Click Please :](https://www.cpmrevenuegate.com/w8u5kh176c?key=1e8194a152d496ea8678bf47f6f303f0')
+- [Donations Click Please :](https://www.cpmrevenuegate.com/geqz1h5i?key=fb76cd6a483ebea414e167e341da2c1f')
+- [Donations Click Please :](https://www.cpmrevenuegate.com/zf1320xdzp?key=6db722a5c6d89086fb0b29e98e914d90')
+- [Donations Click Please :](https://www.cpmrevenuegate.com/panm4m5wsh?key=66694366e006089ac768292f36436d42')
