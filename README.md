@@ -24,4 +24,4 @@ For donors, the act of giving is often deeply fulfilling. Many individuals and o
 - [Donations Click Please :](https://www.cpmrevenuegate.com/panm4m5wsh?key=66694366e006089ac768292f36436d42')
 
 
-- This Our Website : [Click here](https://sites.google.com/view/globalgiftoffers/home')
+- This Our Website : [Click here](https://sites.google.com/view/globalgiftoffers/home)
